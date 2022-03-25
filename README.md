@@ -9,7 +9,7 @@ account seller : https://ckazakov.xyz/
 
 great.dolphin.ls@gmail.com  :  KSB
 
-ugly0226@gmail.com  : SKH
+ugly0226@gmail.com  : SKH  :  Dandong
 
 
 
