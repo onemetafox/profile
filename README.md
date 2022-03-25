@@ -7,9 +7,9 @@ coin to cash (telegram) name: quang mmo; phone: +84 967 999 630
 account seller : https://ckazakov.xyz/
 
 
-great.dolphin.ls@gmail.com  :  KSB  :  HongKong
+great.dolphin.ls@gmail.com  :  KSB  :  HongKong :  @steve_jin->telegram
 
-ugly0226@gmail.com  : SKH  :  Dandong
+ugly0226@gmail.com  : SKH  :  Dandong : @Solomon226->telegram
 
 
 
