@@ -16,3 +16,4 @@ live:.cid.c6abec7ad129c86f : @chaoming2100 : Shyenyang : YH
 
 @venus_winter_122 : JKS : Russia
 
+@beast227 : KIH : Russia
