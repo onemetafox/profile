@@ -14,7 +14,7 @@ ugly0226@gmail.com  : SKH  :  Dandong : @Solomon226->telegram
 live:.cid.c6abec7ad129c86f : @chaoming2100 : Shyenyang : YH
 
 
-@venus_winter_122 : JKS : Russia
+@venus_winter_122 : JKS : Russia live:roman.delmar.co
 
 @beast227 : KIH : Russia
 
